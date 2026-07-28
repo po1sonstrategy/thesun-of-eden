@@ -1,8 +1,4 @@
-<img width="1000" height="462" alt="29_Mika_Kagehira_CG" src="https://github.com/user-attachments/assets/c5a7d8a1-ad76-4162-a7b4-c170344425a2" />
-                                                          
-                                                        お 邪 魔 し ま ~ す …♪
-
-
+   <img width="1100" height="570" alt="ac91b5e2e20ecf21e9c677d685a9cfa9" src="https://github.com/user-attachments/assets/6049259c-4634-4734-b20c-96d921363d1b" />
 
                                                        ᕼIᕼI! I ᗩᗰ ᗩKI Oᖇ ᑎIKI!
 
@@ -26,5 +22,5 @@
                              I ᒍᑌᔕT ᗯᗩᑎᑎᗩ ᖴIT Iᑎ TᕼIᔕ ᔕOᑕIETY ᗯE ᒪIᐯE Iᑎ, ᔕOᖇᖇY ᖴOᖇ ᕼOᗯ I ᗩᑕT!!
 
                           ᕼIYOᖇI TOᗰOE GᗩᑕᕼIKOI ᗩᑎᗪ ᑎOᑎᔕᕼᗩᖇIᑎG YᑌᗰEᔕᕼIᑭᑭEᖇ ᔕIᑎᑕE 11Tᕼ Oᖴ ᗰᗩY 2024<3
-<img width="372" height="272" alt="Shu_Itsuki_Mika_Kagehira_Work_CA1121_HOLIDAY%21_Group_Chibis" src="https://github.com/user-attachments/assets/50279e89-cb04-43f5-9304-dc54711762c3" />
+
 
