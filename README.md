@@ -1,4 +1,7 @@
-   <img width="1100" height="570" alt="ac91b5e2e20ecf21e9c677d685a9cfa9" src="https://github.com/user-attachments/assets/6049259c-4634-4734-b20c-96d921363d1b" />
+ <img width="1000" height="462" alt="platonic narumika" src="https://github.com/user-attachments/assets/051fe22e-8c00-4cae-af29-0466a7e1b4da" />
+                                                          
+                                                          platonic narumika
+
 
                                                        ᕼIᕼI! I ᗩᗰ ᗩKI Oᖇ ᑎIKI!
 
