@@ -1,6 +1,6 @@
- <img width="1000" height="462" alt="platonic narumika" src="https://github.com/user-attachments/assets/051fe22e-8c00-4cae-af29-0466a7e1b4da" />
+<img width="1000" height="462" alt="29_Mika_Kagehira_CG2" src="https://github.com/user-attachments/assets/6dd6c567-9cd9-4f02-8d6e-99f33fee3e71" />
+
                                                           
-                                                          platonic narumika
 
 
                                                        ᕼIᕼI! I ᗩᗰ ᗩKI Oᖇ ᑎIKI!
