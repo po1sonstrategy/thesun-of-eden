@@ -1,6 +1,6 @@
-<img width="1000" height="462" alt="29_Mika_Kagehira_CG2" src="https://github.com/user-attachments/assets/6dd6c567-9cd9-4f02-8d6e-99f33fee3e71" />
+<img width="1000" height="462" alt="29_Ibara_Saegusa_CG2" src="https://github.com/user-attachments/assets/809e8147-49e3-4c90-97b3-5bf439970570" />
+                                                         
 
-                                                          
 
 
                                                        ᕼIᕼI! I ᗩᗰ ᗩKI Oᖇ ᑎIKI!
