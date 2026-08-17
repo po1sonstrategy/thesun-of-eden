@@ -48,3 +48,7 @@
 <p align="center">
 <img width="100" height="100" alt="ES2_Fifth_Anniversary_Set_1_Nagisa (1)" src="https://github.com/user-attachments/assets/2858ca97-b04c-48f1-93dd-433da1c3014f" /> <img width="450" height="200" alt="Bkubstars_THE_WORLD_Peru" src="https://github.com/user-attachments/assets/de5b5f53-a8a5-468b-83a9-49c55dc51bbc" /> <img width="100" height="100" alt="ES2_Fifth_Anniversary_Set_2_Ibara (1)" src="https://github.com/user-attachments/assets/29b80959-3c10-4ac6-bfe1-69a87c7b611a" />
 
+<p align="center">
+me, vinny and kazuzu!
+<p align="center">
+<img width="503" height="375" alt="Screenshot 2026-08-17 173735" src="https://github.com/user-attachments/assets/1a033264-6e56-4b7e-b676-1db896929dc7" />
